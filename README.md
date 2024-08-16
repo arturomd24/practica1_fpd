@@ -1,1 +1,3 @@
-en este trabajo se expondra los temas abordados en la clase del dia lunes 12 de agosto
+Morales Dominguez Josue Arturo 
+320050826
+josuemoralesdominguez2004@gmail.com 
